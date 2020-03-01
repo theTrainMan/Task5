@@ -8,7 +8,6 @@ The site will host the following:
   various cakes 
   various tarts and busicuits
 
-1. Installation Local Drive
-
+Thank you and have a wonderful day.
 
 
